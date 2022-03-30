@@ -1,5 +1,1 @@
-Here you can say lots of fun things about your site.
-
-Maybe say a some things about yourself.
-
-Or maybe what you plan to blog about.
+I believe that I.T. can be done better.  I believe that each of us has a responsibility to be part of that improvement.  These are my opinions on the matter.
